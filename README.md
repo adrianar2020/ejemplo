@@ -1,3 +1,19 @@
-# ejemplo
-ejemplo para la capacitacion
-hjhj
+# Ejemplo
+
+Ejemplo para la capacitacion
+
+       ,.
+       \ '.
+        >   ).--.
+         >  ( o ,=====-
+       <`'---.   `.
+        /,    )    )
+         /^/^'    /
+             ) \v/))  
+             /. \'    
+           ( ( ) )
+            . /
+           / /
+          : '
+           /
+         .' `.
